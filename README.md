@@ -1,0 +1,1 @@
+![alt](baitap1.png)
